@@ -1,7 +1,7 @@
 # Hi, I'm Mizael Dutra 👋
 
 **AI Data Contributor · Training Instructor · IT Specialist**  
-📍 Ribeirão das Neves, Brazil &nbsp;|&nbsp; 📧 mizaelkervellyn@gmail.com
+📍 Ribeirão das Neves, Brazil &nbsp;|&nbsp; 📧 mizaelkervellyn@gmail.com 📧 mizaelkervellyn@outlook.com
 
 ---
 
